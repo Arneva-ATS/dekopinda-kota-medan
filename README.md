@@ -1,1 +1,1 @@
-# dekopinda-kota-medan
+# dekopinda-karanganyar
